@@ -1,1 +1,0 @@
-# smartsearch.girthub.io
